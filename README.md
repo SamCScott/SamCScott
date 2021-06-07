@@ -2,6 +2,6 @@
 - 👀 I’m interested in video game development
 - 🌱 I’m currently learning everything lol
 - 💞️ I’m looking to collaborate on anything lmao
-- 📫 How to reach me: highly.convenient.throwawa@gmail.com. I won't give out my real email address to just anyone, i'm a high class hoe
+- 📫 How to reach me: discord is Regi#1001, email me at highly.convenient.throwaway@gmail.com
 
 
